@@ -1,7 +1,7 @@
 # isso ai 
 Maria Vitória n°21 1A 
 
-bom uma curiosidade minha que eu sou fascinada por moda, e um dos meus maiores sonhos é aprender a criar desings de roupas, gosto muito de ouvir música um do meus cantores favoritos é o Abel, famoso The Weeknd.
+Bom, uma curiosidade minha que eu sou fascinada por moda, e um dos meus maiores sonhos é aprender a criar desings de roupas, gosto muito de ouvir música um do meus cantores favoritos é o Abel, famoso The Weeknd.
 
 
 
